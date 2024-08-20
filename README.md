@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ALGHAZEER
+- Im MUSLIM, ALHAMDULILAH
+- Im a Web Developer
